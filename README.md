@@ -1,5 +1,5 @@
 # **A.K.A ---- script writer ng mga telenobelang walang kwenta. pa ulit-ulit at hindi matapos-tapos** 
-## tolongest tandem :  😂😂😂Chlone RenTae at EdiWoW Longaniza de Roskas😂😂😂
+## tolongest p😂🤣p tandem :  😂😂Chlone RenTae 😂 EdiWoW Longaniza de Roskas😂😂
 ##
 ##
 
